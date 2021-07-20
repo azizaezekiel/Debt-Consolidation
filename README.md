@@ -8,9 +8,9 @@ Some successful approaches to unite your debt involve taking out an individual l
 *Your total debt excluding mortgage should not be more than 40% of your total income.
 *Your credit is adequate to fit the bill for a 0% charge card or low-premium debt consolidation loan.
 *Your income reliably comprises installments toward your debt.
-*You should have a concern about your future by controlling the debts to come again.
+*You should have a concern about your future by controlling the debts to come again.debt consolidation
 
-Here’s a situation when consolidation suits well: Suppose, you may have four credit cards with loan rates from the proportion of 18.99 to 24.99. You generally make your installments on schedule, so your credit is acceptable. You may meet all requirements for a debt without collateral consolidation loan at 7% — a fundamentally lower credit rate.
+Here’s a situation when [debt consolidation](https://vattalks.com/top-10-benefits-of-best-debt-consolidation/) suits well: Suppose, you may have four credit cards with loan rates from the proportion of 18.99 to 24.99. You generally make your installments on schedule, so your credit is acceptable. You may meet all requirements for a debt without collateral consolidation loan at 7% — a fundamentally lower credit rate.
 
 For some individuals, consolidation uncovers a reason to have hope. In the event that you take a credit with a three-year term, you realize it will be paid off in three years — accepting you make your installments on schedule and deal with your spending. Alternately, making least installments on charge cards could mean months or a long time before they’re paid off, all while accumulating more interest than the underlying head.
 
